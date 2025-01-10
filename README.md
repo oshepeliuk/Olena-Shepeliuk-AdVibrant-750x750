@@ -1,0 +1,1 @@
+# Olena-Shepeliuk-AdVibrant-750x750
